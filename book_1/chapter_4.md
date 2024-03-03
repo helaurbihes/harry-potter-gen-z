@@ -1,5 +1,5 @@
 # Chapter Four
-## THE KEEPER OF THE KEYS
+## The Keeper of Keys
 
 BOOM. They knocked again. Dudley jerked awake.
 
@@ -29,13 +29,13 @@ Dudley squeaked and ran to hide behind his mother, who was crouching, terrified,
 
 Harry looked up into the fierce, wild, shadowy face and saw that the beetle eyes were crinkled in a smile.
 
-"Las' time I saw you, you was only a baby," said the giant. "Yeh look a lot like yer dad, but yeh've got yer mom's eyes."
+"Las' time I saw you, you was only a spawnling," said the giant. "Yeh look a lot like yer dad, but yeh've got ur mom's eyes."
 
-Uncle Vernon made a funny rasping noise.
+Uncle Vernon made a weird asf rasping noise.
 
 "I demand that you leave at once, sir!" he said, clearly triggered. "You are breaking and entering!"
 
-"Ah, shut up, Dursley, yeh great prune," said the giant; he reached over the back of the sofa, jerked the gun out of Uncle Vernon's hands, bent it into a knot as easily as if it had been made of rubber, and threw it into a corner of the room.
+"Ah, shut up, Dursley, yeh great prune," said the giant; he reached over the back of the sofa, jerked the gun out of Uncle Vernon's hands, bent it into a knot as easily as if it had been made of rubber, and threw it into a corner of the room (Hagrid understoodthe assignment).
 
 Uncle Vernon made another funny noise, like a mouse being trodden on. No more Karen-ing for him.
 
@@ -67,7 +67,7 @@ He passed the sausages to Harry, who was so hungry he had never tasted anything 
 
 Hagrid looked shocked.
 
-"My b" Harry said quickly.
+"Mb" Harry said quickly.
 
 "Your b?" barked Hagrid, turning to stare at the Dursleys, who shrank back into the shadows. "It's them as should be sorry! I knew yeh weren't gettin' yer letters but I never thought yeh wouldn't even know abou' Hogwarts, fer cryin' out loud! Did yeh never wonder where yer parents learned their shit?"
 
@@ -87,13 +87,13 @@ But Hagrid simply waved his hand and said, "About our world, I mean. Your world.
 
 "What world?"
 
-Hagrid looked as if he was about to explode.
+Hagrid looked as if he was consipated.
 
-"DURSLEY!" he boomed.
+"DURSLEY!" he moaned.
 
-Uncle Vernon, who had gone very pale, whispered something that sounded like "Mimblewimble." Hagrid stared wildly at Harry.
+Uncle Vernon, who had gone very anti tan, whispered something that sounded like "Mimblewimble." Hagrid stared wildly at Harry.
 
-"But yeh must know about yer mom and dad," he said. "I mean, they're famous. You're famous."
+"But yeh must know about yer mom and dad," he said. "I mean, they're famous. You're a nepo baby (Anton)."
 
 "What? My -- my mom and dad weren't famous, were they?"
 
@@ -105,11 +105,11 @@ Uncle Vernon suddenly found his voice.
 
 "Stop!" he commanded. "Stop right there, sir! I forbid you to tell the boy anything!"
 
-A braver man than Vernon Dursley would have quailed under the furious look Hagrid now gave him; when Hagrid spoke, his every syllable trembled with rage.
+A braver man than Vernon Dursley would have omegaified under the alpha look Hagrid now gave him; when Hagrid spoke, his every syllable trembled with rage.
 
-"You never told him? Never told him what was in the letter Dumbledore left fer him? I was there! I saw Dumbledore leave it, Dursley! An' you've kept it from him all these years?"
+"You never told him? Never told him what was in the letter Dumbledore left fer him? I was there! I saw Dumbledore leave it, Dursley! An' you've gatekept it from him all these years?"
 
-"Kept what from me?" said Harry eagerly.
+"Gatekept what from me?" said Harry eagerly.
 
 "STOP! I FORBID YOU!" yelled Uncle Vernon in panic.
 
@@ -117,9 +117,9 @@ Aunt Petunia gave a gasp of horror.
 
 "Ah, go boil yer heads, both of yeh," said Hagrid. "Harry -- yer a wizard."
 
-There was silence inside the hut. Only the sea and the whistling wind could be heard. "I'm a what ?" gasped Harry.
+There was silence inside the hut. Only the sea and the whistling wind could be heard. "I'm a what ?" gasped Harry, shik shak shoked.
 
-"A wizard, o' course," said Hagrid, sitting back down on the sofa, which groaned and sank even lower, "an' a thumpin' good 'un, I'd say, once yeh've been trained up a bit. With a mum an' dad like yours, what else would yeh be? An' I reckon it's abou' time yeh read yer letter."
+"A wizard, o' course," said Hagrid, sitting back down on the sofa, which groaned and sank even lower, "an' a thumpin' good 'un, I'd say, once yeh've been trained up a bit. With a milf an' dad like yours, what else would yeh be? An' I reckon it's abou' time yeh read yer letter."
 
 Harry stretched out his hand at last to take the yellowish envelope, addressed in emerald green to Mr. H. Potter, The Floor, Hut-on-the-Rock, The Sea. He pulled out the letter and read:
 
